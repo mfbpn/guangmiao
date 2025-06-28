@@ -1,6 +1,6 @@
 # 光喵机场官网地址
 
-最新地址：[光喵.com](https://xn--54qr1i.com/index.php#/register?code=U7beFc2a)
+最新地址：[光喵.com](https://xn--54qr1i.com/index.php#/register?code=SPMvQq2x)
 
 ## 光喵介绍
 
